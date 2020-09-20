@@ -1,5 +1,5 @@
 # Evolve---x
-I am Kokila and my friends Harish M and Jai Prasad are contribute to this project Charity Begins 
+I am Kokila and my friends Harish M and Jaiprasath are contribute to this project Charity Begins 
 Team Name : Helping hands
 
 For Login 
